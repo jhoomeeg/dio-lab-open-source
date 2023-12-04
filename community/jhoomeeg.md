@@ -28,4 +28,4 @@ Atualmente, estou imerso no aprendizado de:
 
 
 
-Vamos construir algo incrível juntos! 🚀
+E ai! Vamos construir algo incrível juntos? 🚀
